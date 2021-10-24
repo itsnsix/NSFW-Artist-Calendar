@@ -22,6 +22,7 @@ ___
 - 8th Vore Day
 ## September
 ## October
+- 17th National Ass Day
 - 22nd National Nut Day
 - 23rd Snow Leopard Day
 - 31st Halloween
